@@ -1,1 +1,1 @@
-gaining mastery on the keys everyday
+The goal is to keep being better at coding daily
